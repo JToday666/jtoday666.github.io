@@ -1,3 +1,3 @@
-# Jtoday666.github.io
+# jtoday666.github.io
 
 ## hey!
